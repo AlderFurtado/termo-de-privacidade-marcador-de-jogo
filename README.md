@@ -1,0 +1,1 @@
+# termo-de-privacidade-marcador-de-jogo
